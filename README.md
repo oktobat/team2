@@ -1,1 +1,1 @@
-# team2
+https://oktobat.github.io/team2/
